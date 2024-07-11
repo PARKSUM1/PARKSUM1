@@ -27,5 +27,5 @@ SSAFY에서 이런 경험들을 통해 많은 것을 배우기를 바라고 있�
 
 ### 감사합니다
 
-📞 010-8779-1121  
-✉️ shocolatebox@gmail.com
+📞 010-8779-1121 📞   
+✉️ shocolatebox@gmail.com ✉️
